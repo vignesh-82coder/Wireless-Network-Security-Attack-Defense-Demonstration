@@ -1,0 +1,1 @@
+This repository contains a detailed project report that is kept private for security and academic integrity reasons. If you need access or would like to discuss the project, feel free to reach out to me directly.
